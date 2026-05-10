@@ -1,4 +1,4 @@
-
+Fantastical for macOS exclusive Addon: note encryption & offline access is the best Fantastical for macOS addon, featuring note encryption and offline access. Safe, efficient, and
 
 
 
